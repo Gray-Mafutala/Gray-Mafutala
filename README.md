@@ -5,4 +5,4 @@
 - ⚡ In the near future, I plan to join a team of web development, or work in freelancing.
 - 📫 Need to contact me? Join me on twitter [@MafutalaG](https://twitter.com/MafutalaG) or leave me a message at graymafutala@gmail.com
 
-By the way, for those who are wondering, Gray+ Code = Grode, that's why I'm The Grode :))
+By the way, for those who are wondering, Gray + Code = Grode, that's why I'm The Grode :))
